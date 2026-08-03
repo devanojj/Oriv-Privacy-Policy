@@ -1,4 +1,3 @@
-# Oriv Privacy Policy
 
 **Effective Date:** August 3, 2026  
 **App Name:** Oriv  
